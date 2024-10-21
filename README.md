@@ -12,6 +12,6 @@
     - cats🐈🐈‍⬛
     - movies🎬
     - music🎶🎸(A big fan of Faye Wong, 王菲; I also like many other kinds of music)
-    - sports🏀⚽🎾🏸(I can play all kinds of ball games😎)
+    - sports🏀⚽🎾🏸(I can play all kinds of ball games😎, Champion of Premier League⚽ @ NJU)
     - emoji😈
 - ⚡ Fun fact: My Chinese name contains four characters
