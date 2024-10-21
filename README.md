@@ -11,8 +11,9 @@
 - 🤗 I like
     - cats🐈🐈‍⬛
     - movies🎬
-    - music🎶🎸(A big fan of Faye Wong, 王菲; I also like many other kinds of music)
+    - music🎶🎸(A big fan of Faye Wong, 王菲; I also enjoy many other musics)
     - sports🏀⚽🎾🏸
     (I can play all kinds of ball games😎, Champion of Premier League⚽ @ NJU)
+    - food🍲🥵🔥(especially Szechuan cuisine, 川菜)
     - emoji😈
 - ⚡ Fun fact: My Chinese name contains four characters
