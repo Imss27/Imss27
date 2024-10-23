@@ -6,7 +6,7 @@
 🙌 B.S. in Mathematics @ Nanjing University
 
 - 🔭 I’m currently focusing on LLM Serving and Inference System, LLM Serving System Benchmark and LLM Evaluation
-- 🌱 I hope I have more time to learn anything which is interesting and new to me 
+- 🌱 I hope to learn anything that is interesting and new to me
 - 🤔 I am broadly interested in Hardware, System, Algorithm, Math, Biology and Medicine
 - 🤗 I like
     - cats🐈🐈‍⬛
