@@ -7,7 +7,7 @@
 
 - 🔭 I’m currently focusing on LLM Serving and Inference System, LLM Serving System Benchmark and LLM Evaluation
 - 🌱 I hope to learn anything that is interesting and new to me
-- 🤔 I am broadly interested in Hardware, System, Algorithm, Math, Biology and Medicine
+- 🤔 I am broadly interested in Hardware, System, Algorithm, Mathematics, Biology and Medicine
 - 🤗 I like
     - cats🐈🐈‍⬛
     - movies🎬
