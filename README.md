@@ -1,7 +1,7 @@
 ## Hi there 👋
 😄 I'm Andy Dai
 
-🌎 CE Master student @ UCSD
+🌎 M.S. in Computer Engineering @ University of California, San Diego
 
 🙌 B.S. in Mathematics @ Nanjing University
 
