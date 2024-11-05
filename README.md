@@ -16,4 +16,4 @@
     (I can play all kinds of ball games😎, Champion of Premier League⚽ @ NJU)
     - food🍲🥵🔥(especially Szechuan cuisine, 川菜)
     - emoji😈
-- ⚡ Fun fact: My Chinese name contains four characters
+- ⚡ Fun fact: My Chinese name contains four characters, ask me what🤯
